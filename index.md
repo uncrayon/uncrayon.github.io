@@ -1,5 +1,9 @@
-Here you can say lots of fun things about your site.
+Me gusta pensar sobre muchas cosas pero me da flojera escribir.
 
-Maybe say a some things about yourself.
+Tengo otro blog donde enseño cosas de código aplicado a simulaciones en sistemas complejos.
 
-Or maybe what you plan to blog about.
+Aquí platico mucho sobre las cosas que me gusta hacer, lo que recién leí y lo que pasa en mi cabeza. 
+
+Vas a ver muchas cosas sobre entrenamiento, carreras, marketing o artículos y libros que de recién me leí. 
+
+Espero que te diviertas. 
